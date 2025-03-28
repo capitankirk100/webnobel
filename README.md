@@ -2,6 +2,8 @@
 
 🖥️ POV : https://telegra.ph/VT-03-08-3
 
+Tiiny.site not work. Go Here 👉 https://capitankirk100.github.io/webnobel/
+
 ![image](https://github.com/user-attachments/assets/e911067d-a269-4025-ad28-0eb838ffb2bf)
 
 
