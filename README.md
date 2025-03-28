@@ -1,4 +1,4 @@
-👉 https://capitankirk100.github.io/webnobel/
+🔥TRY NOW: https://capitankirk100.github.io/webnobel/
 
 🎥 https://github.com/user-attachments/assets/97612545-e2ee-40e2-9540-860a349c6812
 
